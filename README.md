@@ -1,4 +1,5 @@
 # multimax
-Hi, I'm looking to create a crypto token that works off ethereum
-For a digital Marketing framework. 
+Hi, I'm looking to create a blockhain
+ for a an NFT idea I have. 
+Contact me at enquire@multimaxmarketing.com
 
